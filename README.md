@@ -1,2 +1,1 @@
-
-coming soon...
+security is a myth
